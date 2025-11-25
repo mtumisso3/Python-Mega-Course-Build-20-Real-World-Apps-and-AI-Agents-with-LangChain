@@ -1,0 +1,1 @@
+# link to join other members https://skool.com/automateit
